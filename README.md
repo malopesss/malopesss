@@ -1,4 +1,4 @@
-### Hi there 👋 Boas vindas ao meu perfil 💋
+Ola 👋 Boas vindas ao meu perfil 💋
 Meu nome é Maria Clara Lopes
 
 - Estou estudando na Alura
